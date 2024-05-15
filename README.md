@@ -1,2 +1,0 @@
-# projetos-
-Exercícios dos cursos 
